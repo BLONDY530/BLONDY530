@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BLONDY530
 - 👀 I’m interested in ...Everything
-- 🌱 I’m currently learning ...How to unpack my phone and computer.
+- 🌱 I’m currently learning ...How to unhack my phone and computer.
 - 💞️ I’m looking to collaborate on ...Anything... although I don't know much.
 - 📫 How to reach me ...Jenell.1122.harvey@gmail.com 
 
